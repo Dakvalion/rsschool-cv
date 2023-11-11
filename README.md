@@ -1,3 +1,3 @@
 # rsschool-cv
 
-https://dakvalion.github.io/rsschool-cv/cv
+https://dakvalion.github.io/rsschool-cv/
