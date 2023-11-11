@@ -1,5 +1,7 @@
 ## Nikitina Darya
 
+<img src="https://github.com/Dakvalion/rsschool-cv/assets/105875517/ade00dfc-77c3-416e-81af-6db68d186271" width="320px" align='right'>
+
 ### Contacts:
 
 ---
